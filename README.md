@@ -1,3 +1,4 @@
 # NEWS-HEADLINES
 
-https://linksharing.samsungcloud.com/xQJfWz3RJhkC
+
+https://drive.google.com/file/d/1ViOpZzjmwzApo5mP-Fu0UqgR80PO3FhI/view?usp=drivesdk
